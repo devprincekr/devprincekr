@@ -1,4 +1,4 @@
-Hi, I'm Dev Prince 👋
+Hi, I'm Prince Dev 👋
 
 🚀 Aspiring Web Developer
 
